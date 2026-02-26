@@ -1,2 +1,2 @@
 ## 160, o 00 do SF2 🤴🏻
-![](https://media.tenor.com/1N_AdjOwq8MAAAA1/charles-oliveira.webp)
+![](https://media.tenor.com/py_omv_k0FUAAAAM/rodtang.gif)
